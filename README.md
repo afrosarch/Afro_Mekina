@@ -1,1 +1,0 @@
-# Afro_Mekina
